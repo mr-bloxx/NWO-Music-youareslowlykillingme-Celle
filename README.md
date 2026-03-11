@@ -100,6 +100,8 @@ Es ist wie mit Ski Aggu, Olexesh, Disarstar, Hanybal, Nimo, Acaz, etc - siehe: h
 
 **Hinter der N.W.O. Das Cybermobbing Kartell stecken Nazis, Pädophile und Mörder. Alles kranke Menschen. Sie benutzen die Musik um gemeinschaftlich dem Opfer Wahnvorstellungen einzupflanzen.**
 
+**Haupttäter der NWO sind alle dem Bundesamt für Verfassungsschutz und dem BKA bekannt. Seit über 2 Jahren. Wir haben nur eine kleine Ahnung warum das nicht gestoppt wird: Die Polizei hängt mit drin... Kann ich erst beweisen wenn alles andere bewiesen wurde!**
+
 ### Vorgehensweise:
 1. **Jayden Sak taucht bei einem Opfer auf**
 2. **Er zeigt dem Opfer neue Musik**
