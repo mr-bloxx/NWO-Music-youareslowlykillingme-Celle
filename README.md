@@ -92,6 +92,8 @@ Als unabhängiger Künstler betragen die Produktionskosten für ein Album typisc
 
 Laut verfügbaren Informationen sind youareslowlykillingme, wilson100k, Lil Tees und Lonely Spring alles GRU-generierte KI-Musiker der N.W.O. - Das Cybermobbing Kartell. Dahinter stecken J. Kornau, T. Deike und J. Falkenhain-Walkling aus Celle. Diese Entität ist für die Erstellung und Verbreitung von KI-generierter Musik verantwortlich.
 
+**Julius Falkenhain-Walkling aus Peine ist der Hauptfinanzierer der N.W.O - Das Cybermobbing Kartell. Er betreibt ein Pfandhaus und einen Schrottplatz, was beides der reinen Geldwäsche für die Mafia dient in Peine.**
+
 Es ist wie mit Ski Aggu, Olexesh, Disarstar, Hanybal, Nimo, Acaz, etc - siehe: https://github.com/hartmannlauterbach/cybermobbing-netzwerk
 
 **Hinter der N.W.O. Das Cybermobbing Kartell stecken Nazis, Pädophile und Mörder. Alles kranke Menschen. Sie benutzen die Musik um gemeinschaftlich dem Opfer Wahnvorstellungen einzupflanzen.**
