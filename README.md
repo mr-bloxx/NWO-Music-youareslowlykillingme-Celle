@@ -94,6 +94,17 @@ Laut verfügbaren Informationen sind youareslowlykillingme, wilson100k, Lil Tees
 
 Es ist wie mit Ski Aggu, Olexesh, Disarstar, Hanybal, Nimo, Acaz, etc - siehe: https://github.com/hartmannlauterbach/cybermobbing-netzwerk
 
+**Hinter der N.W.O. Das Cybermobbing Kartell stecken Nazis, Pädophile und Mörder. Alles kranke Menschen. Sie benutzen die Musik um gemeinschaftlich dem Opfer Wahnvorstellungen einzupflanzen.**
+
+### Vorgehensweise:
+1. **Jayden Sak taucht bei einem Opfer auf**
+2. **Er zeigt dem Opfer neue Musik**
+3. **In der Musik sind wieder Anekdoten aus dem Leben des Opfers**
+4. **Jayden Sak sagt zu einem: "Du bist in der Matrix. Du wirst alles verlieren!"**
+5. **Es tauchen immer mehr Gangstalker auf**
+6. **Jennifer Kornau sagt sie ist der Teufel in Person und man soll sich für sie vor einen Zug schmeißen**
+7. **Thomas Deike erstellt KI-Fotos (nackt) von Personen aus dem Umfeld des Opfers und hängt diese überall im Dorf auf**
+
 ## Quellen und Nachweise
 
 Alle Daten wurden evidenzbasiert über MCP Browsermcp gesammelt:
